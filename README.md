@@ -1,5 +1,5 @@
 - Hi, I’m @MrAfton3105
-- I’m interested in: making bosses for ff2r and chaos fortress in tf2.
+- I’m interested in: making bosses for ff2r and minibosses for chaos fortress in tf2.
 - I’m looking to collaborate on: none for now i think.
 - How to reach me: Discord user name - polish_dude06, name - Mr. Afton 3105.
 - Pronouns: #TF2 #FF2 #FF2R #ChaosFortress
