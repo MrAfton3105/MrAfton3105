@@ -3,4 +3,5 @@
 - I’m looking to collaborate on: none for now i think.
 - How to reach me: Discord user name - no_random_sus_v3, name - Mr. Afton 3105, NO RANDOM SUS, NO RANDOM CRITS V3.
 - Pronouns: #TF2 #FF2 #FF2R #ChaosFortress
-- Fun fact: I have done some ability menu bosses like agent 303 v2 on alliedmoders website.
+- Fun fact: I have done some ability menu bosses like agent 303 v2.1 on alliedmoders website.
+- links to my bosses/reworks/mods for tf2: https://www.mediafire.com/folder/26en29wd0jh0t/tf2_stuff_mirror
